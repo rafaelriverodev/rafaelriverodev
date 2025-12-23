@@ -39,7 +39,7 @@ Me encanta compartir mi proceso de aprendizaje y proyectos en redes:
 
 - **Instagram:** [@rafaelriverodev](https://instagram.com/rafaelriverodev)
 - **TikTok:** [@rafaelriverodev](https://tiktok.com/@rafaelriverodev)
-- **Linkedin**[@rafaelriverodev](https://www.linkedin.com/in/rafaelriverodev/)
+- **Linkedin:** [@rafaelriverodev](https://www.linkedin.com/in/rafaelriverodev/)
 
 ---
 
