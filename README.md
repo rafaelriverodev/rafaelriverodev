@@ -37,8 +37,9 @@ Soy un apasionado del desarrollo web enfocado en crear interfaces limpias y func
 
 Me encanta compartir mi proceso de aprendizaje y proyectos en redes:
 
-- **Insta:** [@rafaelriverodev](https://instagram.com/rafaelriverodev)
+- **Instagram:** [@rafaelriverodev](https://instagram.com/rafaelriverodev)
 - **TikTok:** [@rafaelriverodev](https://tiktok.com/@rafaelriverodev)
+- **Linkedin**[@rafaelriverodev](https://www.linkedin.com/in/rafaelriverodev/)
 
 ---
 
